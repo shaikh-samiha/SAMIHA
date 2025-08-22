@@ -1,6 +1,6 @@
 # 🚀 15 Days Web Development Workshop  
 
-**“15 Din. 1 Website. Lifetime Skill.”** ✨  
+**“15 Days. 1 Website. Lifetime Skill.”** ✨  
 
 ---
 
